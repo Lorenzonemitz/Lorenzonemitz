@@ -1,2 +1,2 @@
-Lorenzo C. Nemitz \n;
+Lorenzo C. Nemitz currently a
 Student at UFRGS.
